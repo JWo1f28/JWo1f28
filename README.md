@@ -2,6 +2,7 @@
 - If you need to contact me:
   - Discord: JWo1f28#xxxx
   - Twitter: @Wo1f28J
+  - Email: still need to set one up :|
 - Anything I make will likely be broken to all hell. Don't worry, its normal
 
 <!---
