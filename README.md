@@ -1,0 +1,9 @@
+- I don't really know what I'm doing
+- If you need to contact me:
+  - Discord: JWo1f28#xxxx
+  - Twitter: @Wo1f28J
+- Anything I make will likely be broken to all hell. Don't worry, its normal
+
+<!---
+Probably want to update this in the future
+--->
