@@ -1,4 +1,4 @@
-- I don't really know what I'm doing
+- I don't know what I'm doing
 - If you need to contact me:
   - Discord: JWo1f28#2806
   - Twitter: @Wo1f28J
